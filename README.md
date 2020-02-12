@@ -1,2 +1,0 @@
-# asepwikwik
-Semoga Berkah
